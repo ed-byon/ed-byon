@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ed-byon aka Bwasman
+- 👀 I’m interested in Football & Austrailian Shepherds
+- 🌱 I’m currently learning github
+- 💞️ I’m looking to collaborate on everything
+- 📫 How to reach me - slack
